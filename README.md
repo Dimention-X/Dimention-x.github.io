@@ -1,2 +1,2 @@
 # Dimention-x.github.io
-Rebirth of an Organisation.
+Rebirth of an Organisation..
